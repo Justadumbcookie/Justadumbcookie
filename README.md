@@ -30,6 +30,9 @@ EddTom shippers:I see them as brothers.
 Fangirls:For obvious reasons unless you're not one of those type of fangirls that are overly obessed and possesive.
 
 https://rentry.co/aunfpdtx
+
+Guestbook shut down so this is the new one now I guess
+https://tordthec0mmi3.atabook.org/
 <!--
 **Justadumbcookie/Justadumbcookie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
