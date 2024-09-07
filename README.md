@@ -1,7 +1,7 @@
 ## Hi there 👋
 
-I can act as the name shows
-Sometimes active not good at being social
+I can act as the name shows.
+Sometimes active not good at being social.
 
 int if
 
@@ -13,20 +13,24 @@ Eddsworld people of course int with me.
 I'm an Eddsworld account main.
 
 Yes I'm a venter/depressed type so do be aware.
-I'm a very sensitive person who easily gets offended 
+I'm a very sensitive person who easily gets offended.
 
 dni if
 
-Drama maker. I don't like drama.
+Drama maker.
+I don't like drama.
 
 
-Offensive jokes. I don't take joking about that stuff well or anything in general if it's not supposed to be a joke. I also take most things seriously so I don't really get a lot of jokes.
+Offensive jokes.
+I don't take joking about that stuff well or anything in general if it's not supposed to be a joke.
+I also take most things seriously so I don't really get a lot of jokes.
 
 
 Racist.
 
 
-Toxic. Only friendly people
+Toxic.
+Only friendly people.
 <!--
 **Justadumbcookie/Justadumbcookie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
