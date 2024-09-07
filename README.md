@@ -2,9 +2,7 @@ Sometimes active not good at being social.
 
 int if
 
-Want to talk to me
-
-If I'm not very responsive don't worry I'm not much of a talker. 
+Want to talk to me:If I'm not very responsive don't worry I'm not much of a talker. 
 I'm more of a reader unless it's something I feel like I can make a conversation.
 
 Eddsworld people of course int with me.
@@ -15,31 +13,21 @@ I'm a very sensitive person who easily gets offended.
 
 dni if
 
-Drama maker
-
-I don't like drama.
+Drama maker:I don't like drama.
 
 
-Offensive jokes
-
-I don't take joking about that stuff well or anything in general if it's not supposed to be a joke.
+Offensive jokes:I don't take joking about that stuff well or anything in general if it's not supposed to be a joke.
 I also take most things seriously so I don't really get a lot of jokes.
 
 
-Racist.
+Racist
 
 
 Toxic
 
-Only friendly people.
+EddTom shippers:I see them as brothers.
 
-EddTom shippers
-
-I see them as brothers.
-
-Fangirls
-
-For obvious reasons unless you're not one of those type of fangirls that are overly obessed and possesive.
+Fangirls:For obvious reasons unless you're not one of those type of fangirls that are overly obessed and possesive.
 
 https://rentry.co/aunfpdtx
 <!--
