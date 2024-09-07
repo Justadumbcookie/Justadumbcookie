@@ -1,6 +1,3 @@
-## Hi there 👋
-
-I can act as the name shows.
 Sometimes active not good at being social.
 
 int if
