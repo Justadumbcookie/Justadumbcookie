@@ -1,5 +1,7 @@
 Sometimes active not good at being social.
 
+If anyone from PonyTown does find this and knows me: 🤨📸 aka the Tord that was hanging with a lot of groups and Toms PonyTown decided to screw me over completely so now I can’t play. All my socials are TordtheC0mmi3 so feel free to add me! Discord, Roblox, and Instagram
+
 int if
 
 Want to talk to me:If I'm not very responsive don't worry I'm not much of a talker. 
